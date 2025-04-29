@@ -26,7 +26,7 @@ and serve my country.
 
 ### Favourite Games
 
-1. Crciket
+1. Cricket
 2. Football
 3. Hockey
 
